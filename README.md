@@ -1,1 +1,2 @@
 # fanqiang
+https://glados.one/
